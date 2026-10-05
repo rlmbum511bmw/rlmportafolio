@@ -1,2 +1,0 @@
-# Rodrigo Lozano Mora 
-
